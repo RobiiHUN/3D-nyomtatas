@@ -1,0 +1,1 @@
+Ender 3 Z-axis Stabilizer With Clip by hpekristiansen on Thingiverse: https://www.thingiverse.com/thing:3430000
